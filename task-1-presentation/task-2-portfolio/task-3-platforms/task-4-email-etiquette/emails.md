@@ -26,7 +26,7 @@ Thank you for your time and understanding.
 
 Warm regards,
 Akshata
-25BOE10053 | B.Tech – UX Design | VIT Bhopal University
+25BOE10053 | B.Tech – bioengineering | VIT Bhopal University
 
 ---
 
@@ -38,7 +38,7 @@ Akshata
 Dear Hiring Manager,
 
 I hope you are doing well. I am Akshata, a first-year B.Tech student
-specialising in UX Design at VIT Bhopal University (Reg. No. 25BOE10053).
+specialising in bioengineering at VIT Bhopal University (Reg. No. 25BOE10053).
 
 I am writing to express my keen interest in a summer internship
 opportunity at your organisation. I am eager to apply my academic
@@ -57,4 +57,4 @@ Thank you for considering my application.
 
 Yours sincerely,
 Akshata
-25BOE10053 | B.Tech – UX Design | VIT Bhopal University
+25BOE10053 | B.Tech – bioeingineering | VIT Bhopal University
